@@ -31,7 +31,7 @@ To be a leading construction firm in Africa and to empower our staff with the ne
 
 ## Leadership
 
-### Keacile Qhojeng, Director
+### Keagile Qhojeng, Director
 - BTech in Construction Management
 - Extensive industry experience in project management
 - In process of registering as a professional engineer with ECSA (Engineering Council of South Africa)
