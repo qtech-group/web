@@ -6,9 +6,6 @@
 
 QTech Group is a leading construction firm specializing in civil and building construction, project management, and plant supply across Africa. With over 10 years of combined industry experience, we pride ourselves on delivering quality projects on time and within budget.
 
-**Company Registration:** 2020/78528/07  
-**B-BBEE Status:** Level 1
-
 ## Our Vision
 
 To be a leading construction firm in Africa and to empower our staff with the necessary skills to adapt to changing industry demands.
